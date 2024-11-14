@@ -1,7 +1,7 @@
 Hi there 👋 I'm Eunjee! <br/>
 I'm <b>front developer</b> thinking about website optimization.
 
-I enjoy running, suwimming and surf. 🏄 <br />
+I enjoy running, suwimming and yoga. 🙏 <br />
 I hope to develop every beatiful things.✨💕💛
 
 <br />
